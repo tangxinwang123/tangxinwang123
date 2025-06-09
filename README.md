@@ -1,4 +1,6 @@
-👋 免翻墙入口：https://tangxin88.com <br>
+👀 糖心网最新入口：https://txin1.com
+👋 永久入口：https://tangxin88.com <br>
+✍️ 永久地址：https://tangxinwang.com <br>
 💞️ 官方推特： https://x.com/txin1866 <br>
 😄 官方电报（telegram）群：https://t.me/tangxinwang66 <br>
 
