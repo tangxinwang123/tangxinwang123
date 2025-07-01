@@ -1,4 +1,4 @@
-👀 糖心网最新入口：https://txinw.com <br>
+👀 糖心网最新入口：https://txin10.com <br>
 👋 永久入口：https://tangxin88.com <br>
 ✍️ 永久地址：https://tangxinwang.com <br>
 💞️ 官方推特： https://x.com/txin1866 <br>
